@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Syedowais16
+- 👋 Hi, I’m @FALL 2022-PF
 - Full name: Syed Muhammad owais shah
 - My student id is : 65270
 - 👀 I’m interested in bsse.
